@@ -34,4 +34,4 @@ I enjoy learning by building, experimenting with new tools, and improving my und
 ---
 
 ### Get in Touch 🤝
-- Grab a time slot here (OR) shoot me at linkedin.com/in/krishan-singh-176075342 I’ll get back to you soon! :)
+- Grab a time slot here (OR) shoot me at [linkedin.com/in/krishan-singh-176075342](https://www.linkedin.com/in/krishan-singh-176075342/) I’ll get back to you soon! :)
